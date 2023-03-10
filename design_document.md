@@ -72,3 +72,9 @@
 - via Wickr Pro - https://wickr.com/
   provide email address - banjarasandesh@gmail.com
 
+# When to think about housing
+
+- After project ends - hardware, setup, 
+
+
+
